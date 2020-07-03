@@ -1,0 +1,1 @@
+Summarizing learning progress during the postgraduate period and checking my own learning effect.
